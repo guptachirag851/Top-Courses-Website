@@ -8,4 +8,8 @@
 
  ![Screenshot (10)](https://github.com/guptachirag851/Top-Courses-Website/assets/65108167/797b4ed3-bcea-41e1-bc01-ca985691dd92)
 
+ 
+ ![Screenshot (11)](https://github.com/guptachirag851/Top-Courses-Website/assets/65108167/395289c4-4788-426e-a92b-bb5dc4cb4fc4)
+
+
 
